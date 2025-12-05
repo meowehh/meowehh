@@ -3,4 +3,5 @@
 
 ### 🇷🇺 from russia
 
-🗣️ @meow7.7 (discord) @meowehh [(telegram)](http://t.me/meowehh)
+🗣️ @meow7.7 [Discord](https://discordapp.com/users/370174110132862978/)
+🗣️ @meowehh [Telegram](https://t.me/meowehh)
